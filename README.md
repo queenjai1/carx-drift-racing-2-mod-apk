@@ -6,7 +6,7 @@
 
 CarX Drift Racing 2 MOD APK brings high-speed drifting action to the Android platform. It’s a mobile racing game that lets you master realistic drift physics, customize your ride, and compete with players worldwide. Designed by CarX Technologies, this modified APK version offers unlocked cars and unlimited money, giving players complete freedom to enjoy the game’s features.
 
->Download Here: https://modhello.com/
+>Download: [CarX Drift Racing 2 MOD APK](https://modhello.com/carx-drift-racing-2/)
 
 CarX Drift Racing 2 MOD APK combines immersive racing simulation with advanced drift techniques. For fans of drift racing, this game is a great pick, with its competitive multiplayer mode and extensive customization options that let you tweak everything from car appearance to driving controls.
 
